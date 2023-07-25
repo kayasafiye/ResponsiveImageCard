@@ -5,6 +5,6 @@
 
 ![img2](https://github.com/kayasafiye/ResponsiveImageCard/assets/87526029/23814016-d31f-49a9-a374-0242f0711fb4)
 
-![img3](https://github.com/kayasafiye/ResponsiveImageCard/assets/87526029/5b742803-c9c2-4a3f-8cf9-80213e0fb606)
+![img3](https://github.com/kayasafiye/ResponsiveImageCard/assets/87526029/3ecc652f-754f-4518-a73c-24fbbe47c453)
 
 ![img4](https://github.com/kayasafiye/ResponsiveImageCard/assets/87526029/6342bd53-f36f-4f95-9320-168a527a34e5)
